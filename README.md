@@ -2,21 +2,20 @@
 
 𝒮ℴ𝒸𝒾𝒶𝓁 𝒶𝒸𝒸ℴ𝓊𝓃𝓉𝓈:
 
-🌘𝒴ℴ𝓊𝒯𝓊𝒷ℯ
+｛🌘𝒴ℴ𝓊𝒯𝓊𝒷ℯ
 youtube.com/@LollyHCode
 
-🌖𝒯𝒾𝓀𝒯ℴ𝓀
+｛🌖𝒯𝒾𝓀𝒯ℴ𝓀
 tiktok.com/@lollyhcode
 
-🌕𝒢𝒾𝓉𝒽𝓊𝒷
+｛🌕𝒢𝒾𝓉𝒽𝓊𝒷
 github.com/LollyHCode
 
-🌔𝒫𝒾𝓃𝓉ℯ𝓇ℯ𝓈𝓉
+｛🌔𝒫𝒾𝓃𝓉ℯ𝓇ℯ𝓈𝓉
 br.pinterest.com/LollyHCode/_profile
 
-🌒𝒳
+｛🌒𝒳
 x.com/LollyHCode
-
 
 𝒲ℯ𝓁𝒸ℴ𝓂ℯ 𝓉ℴ 𝓂𝓎 𝒸ℴ𝒹ℯ...
 
